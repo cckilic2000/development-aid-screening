@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://ted.europa.eu/en/notice/-/detail/423678-2026
 
 # Harmonising the implementation of EU legal requirements in the fields of Plant Health and Plant Protection Products through the 'Better Training for Safer Food' Initiative

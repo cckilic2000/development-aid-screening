@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.coe.int/en/web/cooperation-in-police-and-deprivation-of-liberty/strengthening-rights-and-conditions-of-women-in-prisons-in-t%C3%BCrkiye-in-line-with-international-and-eu-standards
 
 # Strengthening Rights and Conditions of Women in Prisons in Turkiye in line with International and EU Standards

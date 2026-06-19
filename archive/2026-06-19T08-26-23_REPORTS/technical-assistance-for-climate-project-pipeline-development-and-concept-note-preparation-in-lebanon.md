@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://in-tendhost.co.uk/gggi/aspx/ProjectManage/2108
 
 # Technical Assistance for Climate Project Pipeline Development and Concept Note Preparation in Lebanon

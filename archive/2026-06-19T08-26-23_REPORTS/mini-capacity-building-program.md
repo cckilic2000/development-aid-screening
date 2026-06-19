@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.facebook.com/PitaPalestine/posts/-call-for-proposals-mini-capacity-building-program-service-providerthe-palestini/978978874768482/
 
 # Call for Proposals: Mini Capacity Building Program - Service Provider

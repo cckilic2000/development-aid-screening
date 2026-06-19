@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.adb.org/projects/59085-001/main
 
 # Kazakhstan : Statistics Improvement Program

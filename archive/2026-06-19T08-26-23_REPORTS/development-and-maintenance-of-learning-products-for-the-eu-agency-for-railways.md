@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.era.europa.eu/procurement/development-and-maintenance-learning-products-eu-agency-railways
 
 # Development and maintenance of learning products for the EU Agency for Railways

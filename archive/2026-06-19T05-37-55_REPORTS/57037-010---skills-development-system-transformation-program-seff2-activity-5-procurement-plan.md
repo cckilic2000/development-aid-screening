@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.adb.org/projects/57037-010/main
 
 # 57037-010 - Skills Development System Transformation Program (SEFF2 Activity 5): Procurement Plan

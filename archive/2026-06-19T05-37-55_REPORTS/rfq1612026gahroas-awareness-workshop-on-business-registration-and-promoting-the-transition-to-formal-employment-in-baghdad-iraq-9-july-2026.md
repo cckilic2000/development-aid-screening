@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.ungm.org/Public/Notice/304548
 
 # RFQ/161/2026/GAH/ROAS Awareness Workshop on Business Registration and Promoting the Transition to Formal Employment in Baghdad, Iraq 9 July 2026

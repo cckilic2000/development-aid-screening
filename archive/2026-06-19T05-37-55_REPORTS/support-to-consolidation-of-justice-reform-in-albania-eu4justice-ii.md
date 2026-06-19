@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://ted.europa.eu/en/notice/-/detail/420933-2026
 
 # Support to consolidation of Justice Reform in Albania-EU4Justice II

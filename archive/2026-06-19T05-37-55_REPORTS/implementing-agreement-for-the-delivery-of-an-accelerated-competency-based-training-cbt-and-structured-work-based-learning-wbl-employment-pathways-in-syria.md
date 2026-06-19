@@ -1,5 +1,3 @@
----
-
 **Source URL:** https://www.ungm.org/Public/Notice/304463
 
 # Implementing Agreement for the Delivery of an Accelerated Competency-Based Training (CBT) and Structured Work-Based Learning (WBL) Employment Pathways in Syria
